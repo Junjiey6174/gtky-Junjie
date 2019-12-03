@@ -7,4 +7,4 @@ I was born in China
 My favorite color is Black
 My favorite 3 artist are Ed Sheeran, Drake and Twice
 
-On the weekends I like to sleep and play game# gtky-Junjie
+On the weekends I like to sleep and play game
